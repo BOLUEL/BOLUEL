@@ -7,6 +7,6 @@ My name is **Boluwatife**!
 - 👯 I’m looking to collaborate on **Data Analytics** and **Software Engineering** projects
 - 🤔 I’m looking for help with learning more about **Software Engineering**
 - 💬 Ask me about **anything**
-- 📫 How to reach me: [bOluwatifes095@gmail.com](mailto:boluwatifes095@gmail.com)
+- 📫 How to reach me: [boluwatifes095@gmail.com](mailto:boluwatifes095@gmail.com)
 - 😄 Pronouns: **She/Her**
 - ⚡ Fun fact: I love **music** 🎧
